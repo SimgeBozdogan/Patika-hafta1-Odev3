@@ -1,0 +1,1 @@
+# Patika-hafta1-Odev3
